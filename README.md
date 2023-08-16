@@ -1,1 +1,1 @@
-# lynix27.github.io
+hi, i'm lynix.
